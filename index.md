@@ -1,0 +1,4 @@
+# Introduction
+I am writing this guide as many people expressed interest in how I reverted my psoriasis using only diet, yoga and meditation. I believe a lots of information in this guide applies to other auto-immune diseases as well.
+I had psoriasis first time that started in 2012 and i went through all types of medication to control it. Only last year i left out all the medicines and took the natural approach and within 3 months all the patches were gone.After so much success I went back to my previous lifestyle and it came back with vengenace. I have again started following the same principles and plan to update you guys with the photographs of progress I am making in real time.
+I dont have anything to sell and only want to share my knowledge and experience that I accumulated through years of managing the disease and extensive reading.
